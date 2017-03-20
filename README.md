@@ -1,6 +1,6 @@
 # Responsible Citizens' Handbook
 
-A guide to organizing movements
+A guide to understanding power and organizing movements
 
 ## Table of Contents
 
