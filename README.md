@@ -1,4 +1,4 @@
-# Movers & Shakers Playbook (MSP)
+# Responsible Citizens' Handbook
 
 A guide to organizing movements
 
